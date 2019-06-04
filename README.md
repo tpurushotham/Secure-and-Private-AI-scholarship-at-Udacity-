@@ -1,1 +1,1 @@
-# Secure-and-Private-AI-scholarship-at-Udacity-
+# Secure-and-Private-AI-scholarship-at-Udacity
